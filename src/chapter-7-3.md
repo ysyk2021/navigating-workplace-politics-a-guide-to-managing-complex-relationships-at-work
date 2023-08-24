@@ -1,5 +1,3 @@
-Managing Conflicts that Arise from Boundary Violations
-==================================================================================================================
 
 Maintaining boundaries between personal and professional lives can be challenging, especially in the modern workplace where work-life balance is increasingly blurred. In this chapter, we will explore strategies for balancing personal and professional boundaries and managing conflicts that arise from boundary violations.
 

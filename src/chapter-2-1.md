@@ -1,5 +1,3 @@
-Recognizing Different Types of Power in the Workplace
-===============================================================================================================
 
 Power dynamics play a crucial role in workplace politics. Understanding power dynamics is essential for individuals to navigate complex relationships and achieve professional goals. This chapter will explore different types of power in the workplace and how they manifest in daily interactions.
 

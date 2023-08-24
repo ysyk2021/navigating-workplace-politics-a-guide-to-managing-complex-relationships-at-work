@@ -1,5 +1,3 @@
-Chapter 5: Managing Conflict in the Workplace
-=============================================
 
 Conflict is an inevitable part of any workplace, and effective navigation of workplace politics requires the ability to manage conflict effectively. In this chapter, we will explore strategies for managing conflict in the workplace, recognizing different types of conflict and their causes, and using active listening and empathy to de-escalate difficult situations.
 

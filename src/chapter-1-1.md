@@ -1,5 +1,3 @@
-Defining Workplace Politics and Its Impact on the Workplace
-==========================================================================================================
 
 Navigating the complex relationships and interactions in a workplace is a crucial aspect of career success. However, these relationships can involve complex power dynamics and politics that can affect an employee's ability to succeed. This chapter will define workplace politics and explore how it impacts the workplace.
 

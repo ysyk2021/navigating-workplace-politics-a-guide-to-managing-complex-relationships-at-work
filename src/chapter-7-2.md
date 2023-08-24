@@ -1,5 +1,3 @@
-Setting Appropriate Boundaries with Colleagues and Superiors
-=======================================================================================================================
 
 In today's modern workplace, it can be challenging to set appropriate boundaries between personal and professional relationships. In this chapter, we will explore the importance of balancing these boundaries and how to manage complex relationships at work.
 

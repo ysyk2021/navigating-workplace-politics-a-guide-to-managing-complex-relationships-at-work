@@ -1,5 +1,3 @@
-Fostering a sense of community and belonging among colleagues
-===========================================================================================================================
 
 Effective relationships are at the heart of successful navigation of workplace politics. In this chapter, we will explore strategies for building effective relationships in the workplace, including fostering a sense of community and belonging among colleagues.
 

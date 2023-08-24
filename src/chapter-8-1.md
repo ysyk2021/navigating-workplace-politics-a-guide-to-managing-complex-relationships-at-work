@@ -1,5 +1,3 @@
-Identifying Common Challenges in Navigating Workplace Politics
-=========================================================================================================================================
 
 Navigating workplace politics can be challenging, particularly when common barriers and challenges are present. In this chapter, we will explore some of the most common challenges individuals face when navigating workplace politics.
 

@@ -1,5 +1,3 @@
-Encouraging open communication and constructive feedback
-======================================================================================================================
 
 Effective communication and constructive feedback are crucial components of building strong relationships in the workplace. In this chapter, we will explore strategies for encouraging open communication and providing constructive feedback.
 

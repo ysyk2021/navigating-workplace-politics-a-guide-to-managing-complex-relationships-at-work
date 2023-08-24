@@ -1,5 +1,3 @@
-Chapter 7: Balancing Personal and Professional Boundaries
-=========================================================
 
 Balancing personal and professional boundaries can be challenging, but it is essential for maintaining healthy workplace relationships and managing workplace politics. In this chapter, we will explore strategies for balancing personal and professional boundaries, setting appropriate boundaries with colleagues and superiors, and managing conflicts that arise from boundary violations.
 

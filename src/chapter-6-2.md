@@ -1,5 +1,3 @@
-Promoting a culture of authenticity and transparency
-=====================================================================================================
 
 Office gossip and rumors can be damaging to workplace relationships, productivity, and morale. In this chapter, we will explore strategies for addressing office gossip and rumors and promoting a culture of authenticity and transparency.
 

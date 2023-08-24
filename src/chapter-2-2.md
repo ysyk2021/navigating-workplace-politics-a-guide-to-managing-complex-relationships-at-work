@@ -1,5 +1,3 @@
-Identifying Power Dynamics and Their Impact on Relationships
-======================================================================================================================
 
 In any workplace, power dynamics exist, and understanding how they operate is critical for managing complex relationships effectively. In this chapter, we will explore the concept of power in the workplace, how power dynamics impact relationships, and how to identify power dynamics in your workplace.
 

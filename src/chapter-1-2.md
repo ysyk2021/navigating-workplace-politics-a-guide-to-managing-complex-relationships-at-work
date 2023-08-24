@@ -1,5 +1,3 @@
-Historical Perspectives on Workplace Politics Theory and Practice
-================================================================================================================
 
 The study of workplace politics has a rich history, with various theories and practices developed over the years. Understanding the historical perspectives on workplace politics can provide insight into current challenges and opportunities in navigating complex relationships and interactions in the workplace. This chapter will explore the historical perspectives on workplace politics theory and practice.
 

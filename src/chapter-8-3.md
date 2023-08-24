@@ -1,5 +1,3 @@
-Addressing cultural and systemic barriers to effective navigation of workplace politics
-==================================================================================================================================================================
 
 Navigating workplace politics can be challenging, particularly when cultural and systemic barriers are present. In this chapter, we will explore strategies for addressing these barriers and promoting more effective navigation of workplace politics.
 

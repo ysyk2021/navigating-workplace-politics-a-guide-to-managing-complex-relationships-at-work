@@ -1,5 +1,3 @@
-Developing strategies for managing conflict in the workplace
-============================================================================================================
 
 Conflict is an inevitable part of any workplace, and managing conflict effectively is essential for maintaining positive relationships and achieving common goals. In this chapter, we will explore strategies for managing conflict in the workplace.
 

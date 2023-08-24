@@ -1,5 +1,3 @@
-Developing Strategies for Building Effective Relationships in the Workplace
-==========================================================================================================================================
 
 Building effective relationships in the workplace is critical for success, but can be challenging in complex environments. In this chapter, we will explore strategies for building effective relationships with colleagues, superiors, and subordinates.
 

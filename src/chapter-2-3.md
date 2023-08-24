@@ -1,5 +1,3 @@
-Building Skills for Managing Power Dynamics Effectively
-=================================================================================================================
 
 Power dynamics are an inevitable part of any workplace, and understanding how power operates is essential for being able to navigate complex relationships effectively. In this chapter, we will explore the concept of power in the workplace and its impact on relationships, as well as strategies for managing power dynamics.
 

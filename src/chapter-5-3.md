@@ -1,5 +1,3 @@
-Using Active Listening and Empathy to De-Escalate Difficult Situations
-======================================================================================================================
 
 Managing conflict in the workplace is a critical skill for success, but it can be challenging in complex environments. In this chapter, we will explore strategies for managing conflict in the workplace by using active listening and empathy to de-escalate difficult situations.
 

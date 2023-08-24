@@ -1,5 +1,3 @@
-Developing strategies for overcoming resistance and promoting buy-in
-===============================================================================================================================================
 
 Navigating workplace politics can be challenging, and it is not uncommon to face resistance or encounter obstacles along the way. In this chapter, we will explore strategies for overcoming common challenges in navigating workplace politics and promoting buy-in.
 

@@ -1,5 +1,3 @@
-Encouraging Ownership and Follow-Through
-=============================================================================================================
 
 Navigating workplace politics can be a difficult task, but it is critical for success in any career. In this chapter, we will explore strategies for navigating workplace politics by encouraging ownership and follow-through.
 

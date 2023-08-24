@@ -1,5 +1,3 @@
-Chapter 6: Addressing Office Gossip and Rumors
-==============================================
 
 Office gossip and rumors can be harmful to workplace relationships and productivity. In this chapter, we will explore strategies for addressing office gossip and rumors, promoting a culture of authenticity and transparency, and encouraging respectful and constructive communication.
 

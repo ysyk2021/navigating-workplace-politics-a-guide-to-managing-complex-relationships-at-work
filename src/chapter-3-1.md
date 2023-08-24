@@ -1,5 +1,3 @@
-Developing Strategies for Navigating Workplace Politics
-===========================================================================================================================
 
 Navigating workplace politics can be a challenge for many individuals. Although it may seem daunting, developing strategies for navigating workplace politics can help individuals build relationships, achieve professional goals, and advance in their careers. In this chapter, we will explore strategies for navigating workplace politics.
 

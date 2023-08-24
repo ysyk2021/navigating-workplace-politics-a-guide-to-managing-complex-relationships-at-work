@@ -1,5 +1,3 @@
-Chapter 4: Building Effective Relationships in the Workplace
-============================================================
 
 Building effective relationships is essential for navigating workplace politics and achieving success in any organization. In this chapter, we will explore strategies for building effective relationships in the workplace, fostering a sense of community and belonging among colleagues, and encouraging open communication and constructive feedback.
 

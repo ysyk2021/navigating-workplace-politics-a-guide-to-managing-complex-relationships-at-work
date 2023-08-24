@@ -1,5 +1,3 @@
-Encouraging Respectful and Constructive Communication
-======================================================================================================
 
 Office gossip and rumors can create a toxic workplace environment and undermine relationships between colleagues. In this chapter, we will explore strategies for addressing office gossip and rumors and promoting more respectful and constructive communication.
 

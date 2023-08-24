@@ -1,5 +1,3 @@
-Developing Strategies for Addressing Office Gossip and Rumors
-==============================================================================================================
 
 Office gossip and rumors can cause a toxic workplace environment and damage relationships between colleagues. In this chapter, we will explore strategies for identifying and addressing office gossip and rumors.
 

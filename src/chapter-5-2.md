@@ -1,5 +1,3 @@
-Recognizing the different types of conflict and their causes
-============================================================================================================
 
 Conflict is an inevitable part of any workplace, but managing conflict effectively is essential for maintaining positive relationships and achieving common goals. In this chapter, we will explore the different types of conflict that can arise in the workplace and their underlying causes.
 

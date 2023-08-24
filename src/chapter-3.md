@@ -1,5 +1,3 @@
-Chapter 3: Developing Strategies for Navigating Workplace Politics
-==================================================================
 
 Navigating workplace politics can be a challenging task, requiring individuals to balance complex relationships and competing priorities. In this chapter, we will explore strategies for navigating workplace politics effectively, fostering clear communication and expectations, and encouraging ownership and follow-through.
 
