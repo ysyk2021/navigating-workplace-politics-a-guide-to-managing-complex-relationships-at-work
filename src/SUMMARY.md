@@ -34,3 +34,4 @@
   - [Addressing cultural and systemic barriers to effective navigation of workplace politics](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
